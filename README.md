@@ -49,6 +49,8 @@ De acuerdo con Romanos 7:23-25, nuestro propósito es vivir para la gloria de Di
 
 ## **Jesús sana a un ciego de nacimiento** - Juan 9:1-38 (RV 1960)
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hp5M2oEcy5E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 ## Juan 9:1-3 (RV 1960)
 
 > Al pasar Jesús, vio a un hombre ciego de nacimiento. Y le preguntaron sus discípulos, diciendo: Rabí, ¿quién pecó, este o sus padres, para que haya nacido ciego? Respondió Jesús: No es que pecó este, ni sus padres, sino para que las obras de Dios se manifiesten en él.
