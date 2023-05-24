@@ -47,7 +47,7 @@ De acuerdo con Romanos 7:23-25, nuestro propósito es vivir para la gloria de Di
 
 > sabiendo que fuisteis rescatados de vuestra vana manera de vivir, la cual recibisteis de vuestros padres, no con cosas corruptibles, como oro o plata, sino con la sangre preciosa de Cristo, como de un cordero sin mancha y sin contaminación, ya destinado desde antes de la fundación del mundo, pero manifestado en los postreros tiempos por amor de vosotros.
 
-## **Jesús sana a un ciego de nacimiento** - Juan 9:1-38 (RV 1960)
+## **Jesús sana a un ciego de nacimiento** - Juan 9:1-38
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/Hp5M2oEcy5E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
