@@ -100,4 +100,6 @@ De acuerdo con Romanos 7:23-25, nuestro propósito es vivir para la gloria de Di
 ## **Referencias**
 
 * Cenfol - Programa de crecimiento (Pág. 43-46)
-* Presentación disponible en: 
+* Presentación disponible en: https://bit.ly/proposito-vida-cristiana
+
+![](images/qr.png)
