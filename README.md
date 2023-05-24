@@ -49,7 +49,7 @@ De acuerdo con Romanos 7:23-25, nuestro propósito es vivir para la gloria de Di
 
 ## **Jesús sana a un ciego de nacimiento** - Juan 9:1-38
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hp5M2oEcy5E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cZHc0LoOtuM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ## Juan 9:1-3 (RV 1960)
 
